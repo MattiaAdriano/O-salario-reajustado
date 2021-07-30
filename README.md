@@ -1,0 +1,1 @@
+# O-salario-reajustado
